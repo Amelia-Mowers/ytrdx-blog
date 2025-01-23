@@ -12,7 +12,7 @@ I think I have a few ideas on how to make the world a better place.
 
 This blog is my contribution to "anti-social media."
 
-It is minimalist and, I hope, atleast a *little* punk rock.
+It is minimalist and, I hope, at least a *little* punk rock.
 
 Thank you for reading.
 
